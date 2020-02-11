@@ -1,2 +1,1 @@
-My website bruh
-it's just a placeholder no judge pls
+This is just a placeholder website
